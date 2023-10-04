@@ -1,3 +1,3 @@
 # Yehanantezera
-My name is yehanan tezera I am from Ethiopia. I am a cloud consultant at Nadamco Africa.
-You can find me on LinkedIn.
+My name is yehanan tezera I am from Ethiopia.
+Cloud consultant at Nadamco Africa. Passionate about leveraging cloud computing for scalable solutions. Let's collaborate and innovate together!Cloud consultant at Nadamco Africa. Passionate about leveraging cloud computing for scalable solutions. Let's collaborate and innovate together!
